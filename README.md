@@ -1,0 +1,5 @@
+- 👋 Hola, soy Francisco Orellana
+- 👀 Estoy interesado en videojuegos, viajar, acampar, cocinar, pasear a mis perros.
+- 🌱 Estoy constantemente estudiando sobre diseño UX, UI y artes visuales.
+- 💞️ Me gustaría trabajar en empresas que valoren la diversidad y el respeto.
+- 📫 Puedes contactarme a orellanav.francisco@gmail.com
